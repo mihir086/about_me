@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mihir086
+- 👋 Hi, I’m Mihir Tomar
 
 - 👀 I’m interested in gaming, coding and learning new things
 
